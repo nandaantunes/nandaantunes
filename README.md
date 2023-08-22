@@ -7,6 +7,7 @@ Meu nome é Fernanda Antunes...
 ⭐ _Utilizo essa plataforma para minha organização e compartlhamento dos meus projetos;_
 
 Você pode entrar em contato comigo, através das minhas redes sociais ou e-mail:⭐
+
 ⭐ nanda_antun3s
 
 ⭐ fernanda.rezende.antunes@escola.pr.gov.br
