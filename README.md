@@ -8,6 +8,8 @@ Meu nome é Fernanda Antunes...
 
 Você pode entrar em contato comigo, através das minhas redes sociais ou e-mail:⭐
 ⭐ nanda_antun3s
+
 ⭐ fernanda.rezende.antunes@escola.pr.gov.br
+
 ⭐  f.antunesrezende@gmail.com
 
